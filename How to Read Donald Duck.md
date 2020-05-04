@@ -157,3 +157,49 @@ TOON SHADING
 ![How%20to%20Read%20Donald%20Duck/Captura_de_Tela_2020-03-23_as_06.51.01.png](How%20to%20Read%20Donald%20Duck/Captura_de_Tela_2020-03-23_as_06.51.01.png)
 
 ![How%20to%20Read%20Donald%20Duck/IMG_5781.jpg](How%20to%20Read%20Donald%20Duck/IMG_5781.jpg)
+
+### SUMMARY OF BOOK/BRAINSTORMING UNITY
+
+![How%20to%20Read%20Donald%20Duck/IMG_6161.jpg](How%20to%20Read%20Donald%20Duck/IMG_6161.jpg)
+
+![How%20to%20Read%20Donald%20Duck/IMG_6163.jpg](How%20to%20Read%20Donald%20Duck/IMG_6163.jpg)
+
+![How%20to%20Read%20Donald%20Duck/IMG_6164.jpg](How%20to%20Read%20Donald%20Duck/IMG_6164.jpg)
+
+![How%20to%20Read%20Donald%20Duck/IMG_6157.jpg](How%20to%20Read%20Donald%20Duck/IMG_6157.jpg)
+
+![How%20to%20Read%20Donald%20Duck/IMG_6165.jpg](How%20to%20Read%20Donald%20Duck/IMG_6165.jpg)
+
+![How%20to%20Read%20Donald%20Duck/IMG_6166.jpg](How%20to%20Read%20Donald%20Duck/IMG_6166.jpg)
+
+### STORYBOARDING UNITY TUTORIAL
+
+![How%20to%20Read%20Donald%20Duck/Untitled_Artwork_5.jpg](How%20to%20Read%20Donald%20Duck/Untitled_Artwork_5.jpg)
+
+### 3D SKETCH OF ROOMS/FRAMES
+
+![How%20to%20Read%20Donald%20Duck/PAGE.png](How%20to%20Read%20Donald%20Duck/PAGE.png)
+
+### SIMPLIFICATION OF THE SCRIPT
+
+1.
+
+![How%20to%20Read%20Donald%20Duck/IMG_6409.jpg](How%20to%20Read%20Donald%20Duck/IMG_6409.jpg)
+
+2.
+
+![How%20to%20Read%20Donald%20Duck/IMG_6410.jpg](How%20to%20Read%20Donald%20Duck/IMG_6410.jpg)
+
+3.
+
+![How%20to%20Read%20Donald%20Duck/IMG_6411.jpg](How%20to%20Read%20Donald%20Duck/IMG_6411.jpg)
+
+### FIRST STEPS IN CREATING THE ENVIRONMENTS
+
+![How%20to%20Read%20Donald%20Duck/sketch_scene1(aerialt).png](How%20to%20Read%20Donald%20Duck/sketch_scene1(aerialt).png)
+
+![How%20to%20Read%20Donald%20Duck/sketch_scene1(front).png](How%20to%20Read%20Donald%20Duck/sketch_scene1(front).png)
+
+![How%20to%20Read%20Donald%20Duck/sketch_scene2(empty).png](How%20to%20Read%20Donald%20Duck/sketch_scene2(empty).png)
+
+[https://www.youtube.com/watch?v=9lPCv9kkbSI](https://www.youtube.com/watch?v=9lPCv9kkbSI)
